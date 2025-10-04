@@ -1,0 +1,4 @@
+# Locaties 
+
+**Arrakis**
+Het verhaal speelt zich voornamelijk af op Arrakis, een planeet met een woestijnklimaat die rijk is aan de belangrijkste grondstof in het heelal: specie, een soort kruid dat interstellair transport mogelijk maakt. Er is weinig tot geen vegetatie op Arrakis, en naast kleine zoogdieren leven er zandwormen. Deze wormen kunnen honderden meters lang worden en komen naar het oppervlak als ze trillingen waarnemen. De planeet wordt daarnaast ook bewoond door mensen, de Vrijmans. Zij zijn een religieus krijgersvolk dat zich heeft aangepast aan het droge klimaat van Arrakis. Zo dragen ze speciale pakken die al het vocht dat ze uitscheiden bewaart met een hoogtechnologisch filtratiesysteem. 
